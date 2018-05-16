@@ -3,9 +3,9 @@
 
 最新地址二：https://aa.shehuipa.net
 
-最新地址三：https://bb.shehuipa.org
+最新地址三：https://bb.shehuipa.info
 
-备用地址四：https://cc.shehuipa.in
+备用地址四：https://cc.shehuipa.org
 
 收藏下面地址发布页或发任意邮件到：dizhicom@gmail.com 自动回复最新地址
 
