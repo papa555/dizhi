@@ -3,7 +3,7 @@
 
 最新地址二：https://aa.shehuipa.net
 
-最新地址三：https://bb.shehuipa.info
+最新地址三：https://bb.shehuipa.org
 
 备用地址四：https://cc.shehuipa.in
 
